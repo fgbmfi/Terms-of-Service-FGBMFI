@@ -1,4 +1,4 @@
-# Terms-of-Service-FGBMFI
+# Terms of Service FGBMFI
 TERMS OF SERVICE
 
 ----
